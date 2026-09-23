@@ -1,36 +1,27 @@
-                                                  Massive fan of 3FS and Flamingo
-  <img width="500" height="350" alt="image" src="https://github.com/user-attachments/assets/7b423257-3787-4769-8c86-01c21611e970" /><img width="500" height="350" alt="image" src="https://github.com/user-attachments/assets/b4a3d4e7-c6af-48b2-845a-469fc3af707a" />
+::  DAY ﹕ 1 ) ) ) :: ❛ Welcome in ! ❜ (>•ﻌ•)>☕︎
 
-                                                         We also enjoy most mcyt
-                                               The main favorites are Squiddo and JudeLow
-                                                                  ----
-                                  We have a very odd sense of humor, growing up watching weird things.
-                                  We also do not find many things "problematic", or just do not care.
-                                   If you are sensitive or can't take a joke, dni for your own good.
-                               Not the friendliest ever, we have anger issues and are easily irritated.
-                                                                  ----
-                                    We do not mind if you int because you're in the same fandom as us
-                                       W2I will most commonly be the only way to get our attention.
-                                                       Most times afk or offt.
-                                                                  ----
-                                     We're in band, very passionate about music and intruments.
-                        We don't really have a dni, if we don't like you, you'll get told that or just plain blocked.
-                          We are not a system nor a fictionkin, we just find it easier to use "we" instead of "I".
-                                                                  ----
-                                                         Aromantic//Yumeshipper
-                                                            (Mirror Sharing)
-                                                                 Into:
-                                                Creepypasta, FNaF, MLP, most args, etc.
-                                  We are not scared to be blunt, but don't be scared to int with us.
-                                                                  ----
-                                                               Pony Town:
-                                              Commonly found below bakery or in the mc area.
-                                                 Almost always cosplaying mcyt or my F/O.
-                                                  C+H enc, IWC if you want to be oomf.
-                                                                 ----
-                                                      Curious about anything else?
-                                         Ask us whenever, we do not get annoyed with questions.
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/fa2ef474-6c0a-4373-9260-cab9b06861f3" />
 
+⋮ ⌗ ┆ :: ⸝⸝ « What would you like to order? » :: ദ്ദി◝ ⩊ ◜.ᐟ
+  
+:: Hihi, hello !!  I'm Cinnamon :: (˶ˆᗜˆ˵)
+
+:: I'm glad you're checking out my git ! ::
+
+:: Don't be scared to int !  I don't bite !! ::
+
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/d21dbcd8-2365-4058-a29e-19afc196ca14" />
+
+
+╰┈➤ :: I'm not commonly online, so, lucky you, you found me ! :: 𐔌՞ ܸ.ˬ.ܸ՞𐦯
+
+:: Feel free to int//C+H//be oomfies ! ::
+
+:: Always look forward, not back, down, or up ! :: =^-^=
+
+:: That's all from me ! Take a coffee on your way out ☕︎ !! ::
+<img width="1068" height="343" alt="image" src="https://github.com/user-attachments/assets/ade1e03b-2880-48d2-a3e8-0f335479965c" />
+:: SHIFT : Ended ) ) ) :: ❛ See you tomorrow ! ❛ ᰔ ˎˊ˗ ᯓ
 
 <!--
 **CinnamonSwirlHaze/CinnamonSwirlHaze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
