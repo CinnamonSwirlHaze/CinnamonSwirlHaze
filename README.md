@@ -23,6 +23,10 @@
 <img width="1068" height="343" alt="image" src="https://github.com/user-attachments/assets/ade1e03b-2880-48d2-a3e8-0f335479965c" />
 :: SHIFT : Ended ) ) ) :: ❛ See you tomorrow ! ❛ ᰔ ˎˊ˗ ᯓ
 
+
+Just to clear things up !  I don't support JudeLow nor what he has done, I just like his content (though I don't watch it anymore unless reuploaded by someone else) and also enjoy most his fanart, which is why I have a pony of him !
+
+Sorry to anyone who wasn't comf with me because of my pony and before I specified this !
 <!--
 **CinnamonSwirlHaze/CinnamonSwirlHaze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
