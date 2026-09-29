@@ -33,6 +33,7 @@ Sorry to anyone who wasn't comf with me because of my pony and before I specifie
 MEMORIES MADE ON 9/28/2026
 <img width="564" height="322" alt="image" src="https://github.com/user-attachments/assets/90c24184-4aae-48c5-98ec-222997b533df" />
 I LOVE YOU ALLLLLL
+<img width="690" height="701" alt="image" src="https://github.com/user-attachments/assets/a6941303-e433-4662-b2b5-f49485cce2c5" />
 
 <!--
 **CinnamonSwirlHaze/CinnamonSwirlHaze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
