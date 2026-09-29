@@ -27,6 +27,13 @@
 Just to clear things up !  I don't support JudeLow nor what he has done, I just like his content (though I don't watch it anymore unless reuploaded by someone else) and also enjoy most his fanart, which is why I have a pony of him !
 
 Sorry to anyone who wasn't comf with me because of my pony and before I specified this !
+
+----
+
+MEMORIES MADE ON 9/28/2026
+<img width="564" height="322" alt="image" src="https://github.com/user-attachments/assets/90c24184-4aae-48c5-98ec-222997b533df" />
+I LOVE YOU ALLLLLL
+
 <!--
 **CinnamonSwirlHaze/CinnamonSwirlHaze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
