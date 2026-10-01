@@ -1,6 +1,8 @@
 ::  DAY ﹕ 1 ) ) ) :: ❛ Welcome in ! ❜ (>•ﻌ•)>☕︎
 
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/fa2ef474-6c0a-4373-9260-cab9b06861f3" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/c4caf554-f9ad-4802-b058-9247f1c886aa" />
+
+
 
 ⋮ ⌗ ┆ :: ⸝⸝ « What would you like to order? » :: ദ്ദി◝ ⩊ ◜.ᐟ
   
@@ -10,7 +12,10 @@
 
 :: Don't be scared to int !  I don't bite !! ::
 
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/d21dbcd8-2365-4058-a29e-19afc196ca14" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/8402fdd3-8e7b-4437-9e7b-7cfa6f9bc51a" />
+
+
+
 
 
 ╰┈➤ :: I'm not commonly online, so, lucky you, you found me ! :: 𐔌՞ ܸ.ˬ.ܸ՞𐦯
@@ -20,7 +25,11 @@
 :: Always look forward, not back, down, or up ! :: =^-^=
 
 :: That's all from me ! Take a coffee on your way out ☕︎ !! ::
-<img width="1068" height="343" alt="image" src="https://github.com/user-attachments/assets/ade1e03b-2880-48d2-a3e8-0f335479965c" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/4a72a428-f71b-4a3e-b2a0-a7a3255798ed" />
+
+
+
+
 :: SHIFT : Ended ) ) ) :: ❛ See you tomorrow ! ❛ ᰔ ˎˊ˗ ᯓ
 
 
