@@ -1,6 +1,7 @@
 ::  DAY ﹕ 1 ) ) ) :: ❛ Welcome in ! ❜ (>•ﻌ•)>☕︎
 
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/dea229b3-91c9-4d53-bb53-3593b6340707" />
+<img width="1200" height="300" alt="image" src="https://github.com/user-attachments/assets/dfaca922-a991-4275-9f44-e37267644cfc" />
+
 
 
 
@@ -12,7 +13,8 @@
 
 :: Don't be scared to int !  I don't bite !! ::
 
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/ccfcbd94-52e2-4564-aee0-cc2cdd68a59b" />
+<img width="1200" height="200" alt="image" src="https://github.com/user-attachments/assets/8f879fee-2884-416c-8bed-e86efdf2397d" />
+
 
 
 
@@ -23,7 +25,8 @@
 :: Always look forward, not back, down, or up ! :: =^-^=
 
 :: That's all from me ! Take a coffee on your way out ☕︎ !! ::
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/78eb0d9d-fc3b-4f91-b1b6-ab231916a9f9" />
+<img width="1200" height="300" alt="image" src="https://github.com/user-attachments/assets/d4601255-c32b-4b09-92aa-49101705552c" />
+
 
 
 
