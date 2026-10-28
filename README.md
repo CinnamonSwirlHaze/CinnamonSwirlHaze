@@ -30,7 +30,7 @@
 
 :: Candysharing + Sweetsharing !! ::
 
-
+:: I'm also taken IRL!  I love my #girlfriend 🥺 ::
 
 
 
