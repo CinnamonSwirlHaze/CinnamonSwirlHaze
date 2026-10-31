@@ -48,6 +48,10 @@ MEMORIES MADE ON 9/28/2026
 <img width="564" height="322" alt="image" src="https://github.com/user-attachments/assets/90c24184-4aae-48c5-98ec-222997b533df" />
 I LOVE YOU ALLLLLL
 
+
+
+
+Theres lwk a high chance I'll get logged out of this account, so if any of you care, I'll probably make a new one called "CinnamonSwirlHazeMeow" which is the same as my discord
 <!--
 **CinnamonSwirlHaze/CinnamonSwirlHaze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
