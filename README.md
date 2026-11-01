@@ -9,8 +9,9 @@
   
 :: Hihi, hello !!  I'm Cinnamon :: (˶ˆᗜˆ˵)
 
+<img width="200" height="50" alt="Screenshot 2026-10-31 233104" src="https://github.com/user-attachments/assets/39be1cf5-faef-4d85-8943-b3f667c4c20d" /> 
+
 :: I'm glad you're checking out my git ! ::
-<img width="200" height="50" alt="Screenshot 2026-10-31 233104" src="https://github.com/user-attachments/assets/39be1cf5-faef-4d85-8943-b3f667c4c20d" />
 
 :: Don't be scared to int !  I don't bite !! ::
 
@@ -23,6 +24,7 @@
 ╰┈➤ :: I'm not commonly online, so, lucky you, you found me ! :: 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 
 :: Feel free to int//C+H//be oomfies ! ::
+
 <img width="200" height="50" alt="Screenshot 2026-10-31 233114" src="https://github.com/user-attachments/assets/05d47b4d-50de-4cd2-b007-1bb03d4b9755" />
 
 :: Always look forward, not back, down, or up ! :: =^-^=
@@ -33,6 +35,7 @@
 :: Wifies yumeshipper !! :: (C!Wifies, not CC!Wifies)
 
 :: Candysharing + Sweetsharing !! ::
+
 <img width="200" height="50" alt="Screenshot 2026-10-31 233217" src="https://github.com/user-attachments/assets/7559395c-3cfd-40ec-825b-f5cb3213186e" />
 
 :: I'm also taken IRL!  I love my #girlfriend 🥺 ::
