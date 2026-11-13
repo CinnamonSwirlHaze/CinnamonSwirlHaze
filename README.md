@@ -57,7 +57,7 @@ I LOVE YOU ALLLLLL
 
 
 
-Theres lwk a high chance I'll get logged out of this account, so if any of you care, I'll probably make a new one called "CinnamonSwirlHazeMeow" which is the same as my discord
+Alt(s): @Larpwook and @WifiesKisser
 <!--
 **CinnamonSwirlHaze/CinnamonSwirlHaze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
